@@ -27,8 +27,6 @@ financial strategies, especially during periods of economic uncertainty.
 
 ---
 
----
-
 ## Key Focus Areas
 - Gold accumulation and reserve diversification
 - USD dominance vs BRICS financial strategies
